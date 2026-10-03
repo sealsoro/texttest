@@ -1,16 +1,24 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**sealsoro/sealsoro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+${\color{#C2F2D6FF}\text{ hi my name is soro or xes, nn are fine too. my favorite characters is Samantha Giddings, Shelly, Razzle.}}$
+</div>
 
-Here are some ideas to get you started:
+<div align="center">
+ 
+  ${\color{#C2FD6FF}\text{feel free 2 int and w2i, cud freely! might resp late, also I'm a very sensitive person, so please be nice to me but I don't mind jokes.}}$
+</div>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+ 
+${\color{#C2F2D6FF}\text{fav YTubers: FroggyDude, Laurenzside, Kubzscouts, raygloom, teamfaisal, Squiddo, Twixxel.}}$
+</div>
+
+<div align="center">
+ 
+${\color{#C2F2D6FF}\text{DNI AT ALL: Anastasia, Zoe, Ali, problematic people, darkshippers, proshippers. }}$
+</div>
+
+<div align="center">
+ 
+${\color{#C2F2D6FF}\text{froggydude fictkin}}$
+</div>
